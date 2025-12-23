@@ -1,9 +1,7 @@
-- 👋 Hi, I’m @rybusia
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning Java, Python, C, C++
-- 📫 You can reach me from discord: fnaf lover#4323 and there's more of my social media
+hello!! my name is Iga. i don't really go by any other names on any of my social media, and if i do, it's usually [favoritecharacter]lover or something like that
 
-<!---
-rybusia/rybusia is a ✨ special ✨ repository because its `README.md` (this file) appears on her GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+my github profile exists practically only for ponytown lol
+my instagram is @hajimeglazer, tiktok is the same but with two r, my discord is hajimehinataglazer
+do you see the pattern? 
+
+i might do a strawpage sometime soon. yay!
