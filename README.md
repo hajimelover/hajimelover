@@ -1,9 +1,10 @@
-hello!! my name is Iga. i don't really go by any other names on any of my social media, and if i do, it's usually [favoritecharacter]lover or something like that
+hii!!! my name is Iga
+i don't really go by anything else usually, my usernames are mostly hajimelover or a variation of that :)
 
-my github profile exists practically only for ponytown lol
+ig: hajimeglazer
+tt: hajimeglazerr
+dc: hajimehinataglazer
 
-my instagram is @hajimeglazer, tiktok is the same but with two r, my discord is hajimehinataglazer
+i might do a strawpage or something similar but don't expect it
 
-do you see the pattern? 
-
-i might do a strawpage sometime soon. yay!
+this exists for pt mostly so sorry if i don't check in here :')
