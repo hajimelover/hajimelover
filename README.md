@@ -7,6 +7,6 @@ ig: hajimeglazer
 tt: hajimeglazerr
 dc: hajimehinataglazer
 
-i might do a strawpage or something similar but don't expect it
+strawpage in links!
 
 this exists for pt mostly so sorry if i don't check in here :')
